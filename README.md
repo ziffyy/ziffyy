@@ -13,6 +13,3 @@ jazzy⠀⠀/⠀⠀zif⠀⠀✦⠀⠀‿
 <p align="center">
 they⠀⠀/⠀⠀them⠀⠀⠀⠀enfp⠀⠀⠀⠀9teen
 </p>
-<p align="center">
-osdd⠀⠀⠀audhd⠀⠀⠀gad⠀⠀⠀mdd
-</p>
