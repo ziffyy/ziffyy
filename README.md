@@ -8,7 +8,7 @@ all art by⠀⠀:⠀⠀@himejofish⠀⠀<a href="https://www.tumblr.com/himejofi
 
 
 <p align="center">
-jazzy⠀⠀/⠀⠀zif⠀⠀✦⠀⠀‿
+ziffy⠀⠀✦⠀⠀‿
 </p>
 <p align="center">
 they⠀⠀/⠀⠀them⠀⠀⠀⠀enfp⠀⠀⠀⠀9teen
